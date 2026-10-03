@@ -1,2 +1,2 @@
 # Curriculo-HTML
-Atividade recuperação Transforme-se Onda2
+Atividades recuperação Transforme-se Onda2
